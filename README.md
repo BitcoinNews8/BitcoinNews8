@@ -1,12 +1,17 @@
-- 👋 Hi, I’m @BitcoinNews8
-- 👀 www.qt5.uk ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👋 Hi, I’m @trxu56_bot
+- 👀 www.trx56.com ...
+- 👋 嗨，我是 @trxu56_bot
+- 👀 www.trx56.com ...
+TRX能量低价租赁/闪兑汇率高
+*****************************
+▃3.5TRX转一笔，对方无U，7TRX转一笔▃
 
-<!---
-BitcoinNews8/BitcoinNews8 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+       U闪兑TRX汇率全网最高
+
+价格超低 转错包退 不到帐包赔 欢迎体验
+
+立即开启TRX能量机器人：@trx12388_bot
+TRX能量低价租赁/闪兑汇率高群组：@trx1231238
+24小时服务，在线客服：@trx123458
+
+*****************************
